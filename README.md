@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @pierigallo
+- 👀 I’m IT recruiter trying to attract Top Female talent for our client, looking for:
+- Product/software engineers Back & Front End
+- Links to the job descriptions:
+- https://www.era-works.com/product-engineer-frontend
+- https://www.era-works.com/product-engineer-backend-1
+- Our client is working at the bleeding-edge to create a Talent Intelligence category, backed by investors in the US and Europe, with a lot of benefits such as remote work 100%, stock options, retreats & unlimited days off.
+- Interested? Apply directly or write me to pierina@era-works.com
